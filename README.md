@@ -1,1 +1,0 @@
-# AP-Research-Puzzle
